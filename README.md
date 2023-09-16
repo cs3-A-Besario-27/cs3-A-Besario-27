@@ -1,7 +1,8 @@
-- 👋 Hi, I’m @cs3-A-Besario-27
-- 👀 I’m interested in Chess!
-- 🌱 I’m currently learning <3
-- 📫 How to reach me? dm me thru my fb! @Abrielle Alika Besario or thru my email abesario@crc.pshs.edu.ph
+- 🎀 Hi, i’m Abrielle Alika, u can call me abrei !
+- 🧸 my fav hobby is Chess!
+- 🐧 14 - minor - she/her/hers
+- live laugh love taylor swift >.<
+  luv bry :3
 
 <!---
 cs3-A-Besario-27/cs3-A-Besario-27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
